@@ -19,6 +19,5 @@ You can find how I performed these in the classification folder.
 
 ## Get in contact with me:
 - Email and Skype: Mehran.mansouri811@gmail.com
-- Phone number: +989150511552
 - Telegram: @Mehran_mns
 
